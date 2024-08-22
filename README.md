@@ -1,0 +1,9 @@
+- ✨ olá sou: @BrunoFelipeSN
+- 💨 tenho 15 anos.
+- 🎉 meu aniversário é dia 03/12
+- 📘 gosto de estudar: Português.
+- 💯 sou apaixonado por video-games.
+- 💞️ atualmente estou solteiro.
+- 📫 meu email: brunobruno.fn@gmail.com
+- ⚡ estudo em São paulo,Jundiaí.
+- 🫶 Estou no 1 ano do ensino médio.
